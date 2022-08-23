@@ -5,13 +5,13 @@
 
 - 🌱 I’m currently learning **react!**
 
-- I can also work with you to boost your strategy on social media. **I work with a company which have a tool that can develop and send your visibility to the moon! If you are interested, please email or book a meeting in my calendly!**
+- I can also work with you to boost your strategy on social media. **I work with a company which have a unique tool that can develop and send your visibility to the moon! If you are interested, please email or book a meeting in my calendly! It will be a pleasure to discuss about your digital strategy 🙂**
 
-- 📫 How to reach me **bastien.taieb02@kedgebs.com**
+- 📫 How to reach me : **bastien.taieb02@kedgebs.com**
 
-- 📄 Know about my experiences [https://bastientaieb.notion.site/BASTIEN-TAIEB-76054a46916f44fa838a486da3121cfa](https://bastientaieb.notion.site/BASTIEN-TAIEB-76054a46916f44fa838a486da3121cfa)
+- 📄 Know about my experiences : [https://bastientaieb.notion.site/BASTIEN-TAIEB-76054a46916f44fa838a486da3121cfa](https://bastientaieb.notion.site/BASTIEN-TAIEB-76054a46916f44fa838a486da3121cfa)
 
-- ⚡ How to work with me **https://calendly.com/bastien_taieb/discutons-de-vos-besoins**
+- ⚡ How to work with me : **https://calendly.com/bastien_taieb/discutons-de-vos-besoins**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
